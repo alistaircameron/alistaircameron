@@ -1,1 +1,4 @@
-alistaircameron.github.io
+Hoping one day, to work in the real world, on development projects somewhere. 
+<br>
+<br>
+In the mean time, on the hunt for post doc positions, et cela en France de préférence.
