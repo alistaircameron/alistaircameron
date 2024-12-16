@@ -1,10 +1,10 @@
 **Hoping one day, to work in the real world, on development projects somewhere.** 
 
 
-**In the mean time, on the hunt for post doc positions, _et cela en France de préférence._**
+**In the mean time, happily post-docing at CERDI.**
 
 
 
 🌱 https://alistaircameron.github.io/
 
-📫 fname.lname@monash.edu
+📫 fname.lname@uca.fr
